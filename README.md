@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @franecki195
+- 👀 I’m interested in painting
+- 🌱 I’m currently learning science
+- 💞️ I’m looking to collaborate on new projects
